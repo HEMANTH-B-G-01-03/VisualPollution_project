@@ -1,1 +1,0 @@
-# VisualPollution_project
